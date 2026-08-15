@@ -11,7 +11,7 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 
-pure vanilla cookies yumeshipper ( soft sharing ) .                                                       doubles interact with EXTREME caution or just dni.. ok ?                                 
+pure vanilla cookie yumeshipper ( soft sharing ) .                                                       doubles interact with EXTREME caution or just dni.. ok ?                                 
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
