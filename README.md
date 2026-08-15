@@ -1,11 +1,10 @@
-
- <img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/7/73/Lost_kingdom_title_pure_vanilla_animation.gif/revision/latest/scale-to-width-down/242?cb=20250513224912" title="Lost kingdom title pure vanilla animation.gif (9.72 MB)" class="thumbimage" alt="Lost Kingdom Title Animation" height="150" width="242" data-image-name="Lost kingdom title pure vanilla animation.gif" data-image-key="Lost_kingdom_title_pure_vanilla_animation.gif" data-relevant="1" data-caption=" Title Animation">
+<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/7/77/Cutscene_beast_episode08_03.png/revision/latest/scale-to-width-down/267?cb=20250421122251" title="Cutscene beast episode08 03.png (260 KB)" class="thumbimage" alt="Cutscene Art" height="150" width="267" data-image-name="Cutscene beast episode08 03.png" data-image-key="Cutscene_beast_episode08_03.png" data-relevant="1" data-caption="Cutscene Art">
 
 
 @samuraswife  <------- BESTEST person on the planet !!!! ( and biggest chud /joke )
 
 
-.✦ ݁˖ Sometimes, you need the darkness to see the light. 
+.✦ ݁˖  *You're... Pure Vanilla Cookie...!?*
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
@@ -29,9 +28,8 @@ pure vanilla cookie yumeshipper ( soft sharing ) .                              
  
  thank you for reading this ! I really appreciate it :)
 
- <img style=""
-src="https://static.wikia.nocookie.net/cookierunkingdom/images/b/be/Pv_gacha_asset_animation.gif/revision/latest/scale-to-width-down/181?cb=20230106060521" title="Pv gacha asset animation.gif (7.85 MB)" class="thumbimage" alt="Sequence Animation" height="150" width="181" data-image-name="Pv gacha asset animation.gif" data-image-key="Pv_gacha_asset_animation.gif" data-relevant="1" data-caption="Sequence Animation">                           
-
+                          
+<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/c/c3/Awakened_pure_vanilla_gacha_sequence_1_truthless_recluse.png/revision/latest/scale-to-width-down/150?cb=20250218032756" title="Awakened pure vanilla gacha sequence 1 truthless recluse.png (93 KB)" class="thumbimage" alt="Sequence Asset" height="151" width="150" data-image-name="Awakened pure vanilla gacha sequence 1 truthless recluse.png" data-image-key="Awakened_pure_vanilla_gacha_sequence_1_truthless_recluse.png" data-relevant="1" data-caption="Sequence Asset">
 
 <!--
 **SHATTEREDH0PES/SHATTEREDH0PES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
