@@ -1,4 +1,6 @@
-<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/7/77/Cutscene_beast_episode08_03.png/revision/latest/scale-to-width-down/267?cb=20250421122251" title="Cutscene beast episode08 03.png (260 KB)" class="thumbimage" alt="Cutscene Art" height="150" width="267" data-image-name="Cutscene beast episode08 03.png" data-image-key="Cutscene_beast_episode08_03.png" data-relevant="1" data-caption="Cutscene Art">
+
+<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/0/03/Truthless_recluse_gacha_animation.gif/revision/latest/scale-to-width-down/150?cb=20250226031903" title="Truthless recluse gacha animation.gif (9.01 MB)" class="thumbimage" alt="Gacha Animation" height="165" width="150" data-image-name="Truthless recluse gacha animation.gif" data-image-key="Truthless_recluse_gacha_animation.gif" data-relevant="1" data-caption="Gacha Animation">
+
 
 
 @samuraswife  <------- BESTEST person on the planet !!!! ( and biggest chud /joke )
@@ -29,7 +31,7 @@ pure vanilla cookie yumeshipper ( soft sharing ) .                              
  thank you for reading this ! I really appreciate it :)
 
                           
-<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/c/c3/Awakened_pure_vanilla_gacha_sequence_1_truthless_recluse.png/revision/latest/scale-to-width-down/150?cb=20250218032756" title="Awakened pure vanilla gacha sequence 1 truthless recluse.png (93 KB)" class="thumbimage" alt="Sequence Asset" height="151" width="150" data-image-name="Awakened pure vanilla gacha sequence 1 truthless recluse.png" data-image-key="Awakened_pure_vanilla_gacha_sequence_1_truthless_recluse.png" data-relevant="1" data-caption="Sequence Asset">
+<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/7/77/Cutscene_beast_episode08_03.png/revision/latest/scale-to-width-down/267?cb=20250421122251" title="Cutscene beast episode08 03.png (260 KB)" class="thumbimage" alt="Cutscene Art" height="150" width="267" data-image-name="Cutscene beast episode08 03.png" data-image-key="Cutscene_beast_episode08_03.png" data-relevant="1" data-caption="Cutscene Art">
 
 <!--
 **SHATTEREDH0PES/SHATTEREDH0PES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
