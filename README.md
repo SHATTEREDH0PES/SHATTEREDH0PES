@@ -1,5 +1,4 @@
-
-<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/0/03/Truthless_recluse_gacha_animation.gif/revision/latest/scale-to-width-down/150?cb=20250226031903" title="Truthless recluse gacha animation.gif (9.01 MB)" class="thumbimage" alt="Gacha Animation" height="165" width="150" data-image-name="Truthless recluse gacha animation.gif" data-image-key="Truthless_recluse_gacha_animation.gif" data-relevant="1" data-caption="Gacha Animation">
+hi <img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/5/52/Shadow_milk_gacha_asset_2.png/revision/latest/scale-to-width-down/161?cb=20250227052511" title="Shadow milk gacha asset 2.png (772 KB)" class="thumbimage" alt="Sequence Asset" height="150" width="161" data-image-name="Shadow milk gacha asset 2.png" data-image-key="Shadow_milk_gacha_asset_2.png" data-relevant="1" data-caption="Sequence Asset">
 
 
 
