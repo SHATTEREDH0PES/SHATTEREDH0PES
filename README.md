@@ -1,4 +1,4 @@
-hi <img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/5/52/Shadow_milk_gacha_asset_2.png/revision/latest/scale-to-width-down/161?cb=20250227052511" title="Shadow milk gacha asset 2.png (772 KB)" class="thumbimage" alt="Sequence Asset" height="150" width="161" data-image-name="Shadow milk gacha asset 2.png" data-image-key="Shadow_milk_gacha_asset_2.png" data-relevant="1" data-caption="Sequence Asset">
+ <img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/5/52/Shadow_milk_gacha_asset_2.png/revision/latest/scale-to-width-down/161?cb=20250227052511" title="Shadow milk gacha asset 2.png (772 KB)" class="thumbimage" alt="Sequence Asset" height="150" width="161" data-image-name="Shadow milk gacha asset 2.png" data-image-key="Shadow_milk_gacha_asset_2.png" data-relevant="1" data-caption="Sequence Asset">
 
 
 
