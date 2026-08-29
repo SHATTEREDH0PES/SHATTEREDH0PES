@@ -21,7 +21,7 @@ pure vanilla cookie yumeshipper ( soft sharing ) .                              
 
  **DNI LIST** : radqueers , ped0s , people who make n4zi jokes , people who make fun of SA / r4pe , tadc fandom ( I'm srs. ) , homophobic people .
 
-.✦ ݁˖ FANDOMS : crk , brawl stars , the good doctor ( dead 🥹🥹 ) , steven universe , saiki k . 
+.✦ ݁˖ FANDOMS : crk , brawl stars , the good doctor ( dead 🥹🥹 ) , steven universe , saiki k , regretevator and possibly more idk . 
 
  
  ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
