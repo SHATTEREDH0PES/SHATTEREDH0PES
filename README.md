@@ -9,7 +9,7 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 
-pure vanilla cookie yumeshipper ( soft sharing ) .                                                       doubles interact with EXTREME caution or just dni.. ok ?                                 
+pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                                                       doubles interact with EXTREME caution or just dni.. ok ?                                 
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
