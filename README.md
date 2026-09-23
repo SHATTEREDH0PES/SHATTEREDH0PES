@@ -5,6 +5,11 @@
 
 
 
+
+
+
+
+
 .✦ ݁˖  *Like a moth to a flame. Prepare yourselves, vermin.*
 
 
@@ -28,6 +33,10 @@ pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                
 
  
 this is so ugly bro
+
+
+
+
 
 
 
