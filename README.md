@@ -1,4 +1,4 @@
-<img width="479" height="104" alt="1000026684" src="https://github.com/user-attachments/assets/c322700a-4815-48b6-a3f9-50180c2806ad" />
+<img width="479" height="100" alt="1000026684" src="https://github.com/user-attachments/assets/c322700a-4815-48b6-a3f9-50180c2806ad" />
 
 
 
@@ -8,7 +8,7 @@
 .✦ ݁˖  *Like a moth to a flame. Prepare yourselves, vermin.*
 
 
-⊹₊˚‧︵‿₊୨<style="color:#870000;"ᰔ">୧₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 
 pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                                                       doubles interact with EXTREME caution or just dni.. ok ?                                 
@@ -31,5 +31,5 @@ this is so ugly bro
 
 
 
-<img width="479" height="104" alt="1000026685" src="https://github.com/user-attachments/assets/c32d8090-f909-4081-9455-832c0b0e1f59" />
+<img width="479" height="100" alt="1000026685" src="https://github.com/user-attachments/assets/c32d8090-f909-4081-9455-832c0b0e1f59" />
 
