@@ -4,7 +4,7 @@
 
 
 
-.✦ ݁˖  *You're... Pure Vanilla Cookie...!?*
+.✦ ݁˖  *Like a moth to a flame. Prepare yourselves, vermin.*
 
 
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
@@ -26,9 +26,11 @@ pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                
  ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
  
- thank you for reading this ! I really appreciate it :)
+ do NOT touch the coin pile you will **DIE**!!!!!!
 
-                          
+ 
+ <img width="657" height="250" alt="1000026683" src="https://github.com/user-attachments/assets/a74a7a43-b5fe-4da9-906e-21e2477fc433" />
+                         
 
 
 <img width="479" height="104" alt="1000026682" src="https://github.com/user-attachments/assets/e2ad9a33-ae35-40b4-a555-be51a1b386c7" />
