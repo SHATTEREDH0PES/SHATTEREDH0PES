@@ -29,7 +29,7 @@ pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                
  do NOT touch the coin pile you will **DIE**!!!!!!
 
  
- <img width="200" height="102" alt="1000026683" src="https://github.com/user-attachments/assets/a74a7a43-b5fe-4da9-906e-21e2477fc433" />
+ <img width="450" height="102" alt="1000026683" src="https://github.com/user-attachments/assets/a74a7a43-b5fe-4da9-906e-21e2477fc433" />
                          
 
 
