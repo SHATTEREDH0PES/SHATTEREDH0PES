@@ -1,7 +1,5 @@
+<img width="479" height="104" alt="1000026681" src="https://github.com/user-attachments/assets/13a46139-73ff-48d7-bc22-2d578e6837c4" />
 
-
- 
- <img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/5/52/Shadow_milk_gacha_asset_2.png/revision/latest/scale-to-width-down/161?cb=20250227052511" title="Shadow milk gacha asset 2.png (772 KB)" class="thumbimage" alt="Sequence Asset" height="150" width="161" data-image-name="Shadow milk gacha asset 2.png" data-image-key="Shadow_milk_gacha_asset_2.png" data-relevant="1" data-caption="Sequence Asset">
 
 
 
@@ -31,19 +29,6 @@ pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                
  thank you for reading this ! I really appreciate it :)
 
                           
-<img style="" src="https://static.wikia.nocookie.net/cookierunkingdom/images/7/77/Cutscene_beast_episode08_03.png/revision/latest/scale-to-width-down/267?cb=20250421122251" title="Cutscene beast episode08 03.png (260 KB)" class="thumbimage" alt="Cutscene Art" height="150" width="267" data-image-name="Cutscene beast episode08 03.png" data-image-key="Cutscene_beast_episode08_03.png" data-relevant="1" data-caption="Cutscene Art">
 
-<!--
-**SHATTEREDH0PES/SHATTEREDH0PES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="479" height="104" alt="1000026682" src="https://github.com/user-attachments/assets/e2ad9a33-ae35-40b4-a555-be51a1b386c7" />
