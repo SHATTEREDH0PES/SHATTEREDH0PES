@@ -8,7 +8,7 @@
 .✦ ݁˖  *Like a moth to a flame. Prepare yourselves, vermin.*
 
 
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊୨ᰔ<span style="color:#870000;">ᰔ</span>୧₊‿︵‧˚₊⊹
 
 
 pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                                                       doubles interact with EXTREME caution or just dni.. ok ?                                 
