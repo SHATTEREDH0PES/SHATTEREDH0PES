@@ -1,4 +1,5 @@
-<img width="479" height="104" alt="1000026681" src="https://github.com/user-attachments/assets/13a46139-73ff-48d7-bc22-2d578e6837c4" />
+<img width="479" height="104" alt="1000026684" src="https://github.com/user-attachments/assets/c322700a-4815-48b6-a3f9-50180c2806ad" />
+
 
 
 
@@ -30,4 +31,5 @@ this is so ugly bro
 
 
 
-<img width="479" height="104" alt="1000026682" src="https://github.com/user-attachments/assets/e2ad9a33-ae35-40b4-a555-be51a1b386c7" />
+<img width="479" height="104" alt="1000026685" src="https://github.com/user-attachments/assets/c32d8090-f909-4081-9455-832c0b0e1f59" />
+
