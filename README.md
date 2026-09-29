@@ -29,10 +29,7 @@ pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                
 .✦ ݁˖ FANDOMS : crk , brawl stars , the good doctor ( dead 🥹🥹 ) , steven universe , saiki k , regretevator and possibly more idk . 
 
  
- ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
-
  
-this is so ugly bro
 
 
 
