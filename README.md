@@ -22,7 +22,7 @@ pure vanilla cookie and pest yumeshipper ( both soft sharing ) .                
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
  
-.✦ ݁˖ things about me ! : you can call me pizza , PLS int w me ! I don't bite , he / she / they , 🇵🇱 , my friend requests are disabled so ask me to bmf ! , pls don't cover me , iwcuf .                                    
+.✦ ݁˖ things about me ! : you can call me pizza , PLS int w me ! I don't bite , he / him/ or she / her , 🇵🇱 , my friend requests are disabled so ask me to bmf ! , pls don't cover me , iwcuf .                                    
 
  **DNI LIST** : radqueers , ped0s , people who make n4zi jokes , people who make fun of SA / r4pe , tadc fandom ( I'm srs. ) , homophobic people .
 
